@@ -6,7 +6,7 @@
 - **Локация:** Саратов / удалённо
 - **Email:** deradikon99@gmail.com
 - **Telegram:** @Nikkerru
-- **HeadHunter:** (https://saratov.hh.ru/resume/5ff33ff3ff1074de470039ed1f6a5269557759)
+- **HeadHunter:** [Ссылка на резюме](https://saratov.hh.ru/resume/5ff33ff3ff1074de470039ed1f6a5269557759)
 
 ---
 
